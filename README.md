@@ -1,4 +1,7 @@
 ### Hi there 👋
+👋😄✨🌟🙌🌍💡🤖🎨📚🚀🎶🧩🍕☕️🌈🐾🎉🔥💻📱🛠️💬🎯💭🌟🌸💪🌀🔮🧠🎥🌊🌌
+![image](https://github.com/user-attachments/assets/04b912fe-c61f-417d-9bc1-015cc8e3f1b8)
+
 
 <!--
 **knight720/knight720** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
